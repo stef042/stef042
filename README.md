@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @stef042
+- 👀 I’m interested in open technology, collaboration and spreading coding and making to everyone
+- 🌱 I never give up learning!
+- 💞️ I’m looking to collaborate on makerspaces
